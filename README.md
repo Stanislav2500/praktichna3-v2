@@ -1,1 +1,0 @@
-# praktichna3-v2
